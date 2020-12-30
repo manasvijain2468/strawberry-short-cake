@@ -1,0 +1,1 @@
+Shortcake is a sweet cake or biscuit in the American sense that is a crumbly bread that has been leavened with baking powder or baking soda. In the UK, the term shortcake refers to a biscuit similar to shortbread. They are generally less dense and more crunchy and dry than shortbread
